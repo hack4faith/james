@@ -6,26 +6,25 @@ Just like when you write an email to someone, that email has a purpose to commun
 
 **Challenge Scenario:**
 
+TO DO -- NEEDS WORK HERE...
 You've started to read the book of Colossians and you've never read it before or you have read it but now you want to get some background on what was the purpose for this letter? What was the city like historically and culturally at the time of this writing? What were the big issues facing the believers that the apostle Paul is seeking to help them with? What false teachings does this letter specifically address?
-
--- SOME INITIAL THOUGHTS ON AN INTRODUCTION TO -- WHY JAMES...?
-WHAT DOES A GENUINE FAITH-LIFE LOOK LIKE IN PRACTICE? WHEN WE THINK OF BECOMING PROFICIENT AT ANYTHING< WE THINK OF PRACTICE -- PRACTICING THE BASICS, WORKING TO ESTABLISH MUSCLE MEMORY, AND INCREMENTALLY INCREASING OUR SKILL LEVEL THROUGH DOING THINGS THE CORRECT WAY OVER AND OVER AGAIN. THERE ARE MODELS OF PROFIECIENCY, THESE MAY BE EMBODIED IN A PERSON THAT WE WANT TO PATTERN OUR SKILLS AFTER, IT MAY BE IN A CODE OF CODUCT THAT WE WANT TO ADHERE TO, BUT IN ANY CASE IT WILL REQUIRE INTENIONALITY. THE LETTER OF JAMES PROVIDES A MODEL FOR A FAITH-LIFE THAT IS WHOLEISTICALLY GENUINE IN NATURE. ONE THAT REFLECTS THE MODEL OF JESUS' LIFE EXPRESSED IN A VARIETY OF WAYS WHETHER INTERNAL TO OURSELVES OR EXTERNALLY TO OTHERS AND OUR GOD. ..... 
 
 **Reading:**
 
-Read the "Book Overview - Colossians" from the Verse-by-Verse Bible Commentary here, https://www.studylight.org/commentary/colossians.html. 
+Read the "Book Overview - Colossians" from the Verse-by-Verse Bible Commentary here, https://www.studylight.org/commentary/james.html. 
 
 **Challenges:**
 1. Prayerfully, list at least four discoveries from this overview of Colossians that you specifically want to lock down in your understanding and faith while studying this Holy Spirit inspired letter from the apostle Paul. 
     1. Discovery:
-    1. Discovery:
-    1. Discovery:
-    1. Discovery: 
+    2. Discovery:
+    3. Discovery:
+    4. Discovery: 
 
-1. From the issues facing the Colossian believers, in your day-to-day life, how do you see these same issues facing believers today?
+2. From the issues facing the Colossian believers, in your day-to-day life, how do you see these same issues facing believers today?
 
 **#Hack4Faith:**
 
+TO DO -- NEEDS EXAMPLES OF FAITH PHRASES...
 Write 4 faith phrases that are your takeaways from this challenge.
 1. Phrase - 
 1. Phrase - 
