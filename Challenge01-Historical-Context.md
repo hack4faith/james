@@ -6,7 +6,8 @@ Just like when you write an email to someone, that email has a purpose to commun
 
 **Challenge Scenario:**
 
-TO DO -- NEEDS WORK HERE...
+TO DO -- NEEDS WORK HERE... Intro, background, occasion, salutation and James 1:1
+
 You've started to read the book of Colossians and you've never read it before or you have read it but now you want to get some background on what was the purpose for this letter? What was the city like historically and culturally at the time of this writing? What were the big issues facing the believers that the apostle Paul is seeking to help them with? What false teachings does this letter specifically address?
 
 **Reading:**
