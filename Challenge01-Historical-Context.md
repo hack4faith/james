@@ -25,8 +25,7 @@ Read the "Book Overview - Colossians" from the Verse-by-Verse Bible Commentary h
 
 **#Hack4Faith:**
 
-TO DO -- NEEDS EXAMPLES OF FAITH PHRASES...
-Write 4 faith phrases that are your takeaways from this challenge.
+Write 4 faith phrases that are your takeaways from this challenge. (Note: A "faith phrase" is a statement affirming something you learned or an action you intend to take. For example, a "faith phrase" could start with, "From this study..." followed by,  "I am more confident in God's great love for me." Or, "From this study... I will choose to be more gracious to those that have less or more than me." etc.)
 1. Phrase - 
 1. Phrase - 
 1. Phrase - 
