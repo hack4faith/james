@@ -1,4 +1,4 @@
-## **Challenge 2 - Genuine in patients**
+## **Challenge 2 - Genuine in endurance**
 
 
 **Challenge Scenario:**
