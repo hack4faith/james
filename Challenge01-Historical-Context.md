@@ -10,7 +10,7 @@ As with any email sent, there is a reason that gives it purpose. So it is with t
 
 **Historical Context/Occasion:**
 
-Read, James - [Verse-by-Verse Bible Commentary - StudyLight.org](https://www.studylight.org/commentary/james.html), sections: 1. Recipients, Author and Time of Writing and, 2. Subject and purpose of writing. (There's lots of ads on this site, just scroll past them.)
+Read, James - [Verse-by-Verse Bible Commentary - StudyLight.org](https://www.studylight.org/commentary/james.html), sections: 1. *Recipients, Author and Time of Writing* and, 2. *Subject and purpose of writing*. (There's lots of ads on this site, just scroll past them.)
 
 1. The writer of the letter:
     1. What New Testament person named James wrote this letter?
