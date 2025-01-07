@@ -2,7 +2,7 @@
 
 **Introduction:**
 
-To get rolling you will look at the historical context/occasion and do a brief word study from James 1:1
+To get rolling you will look at the historical context/occasion and do a brief word study from James 1:1.
 
 **Scenario:**
 
@@ -42,8 +42,11 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
    1. #1
    2. #2
 
-3. Write a short prayer as a *doulos* to your Lord Jesus Christ.
-   1. 
+**Prayer:**
+
+1. Write a short prayer as a *doulos* to your Lord Jesus Christ.
+   1. Your Prayer...
+ 
 
 
 
