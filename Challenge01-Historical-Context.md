@@ -1,18 +1,22 @@
-## **Challenge 1 - Historical Context**
+## **Discussion/Study 1 - Historical Context**
 
 **Introduction:**
 
-Just like when you write an email to someone, that email has a purpose to communicate a specific message. In the same way, every letter (epistle) in the New Testament exists for a specific purpose (occasion) to address specific issues that its readers were facing in their day-to-day life and faith.
+To get rolling you will look at the historical context/occasion and do a brief word study from James 1:1
 
-**Challenge Scenario:**
+** Scenario:**
 
-TO DO -- NEEDS WORK HERE... Intro, background, occasion, salutation and James 1:1
+As with any email sent, there is a reason that gives it purpose. So it is with the letters that are recorded for us in the New Testament. James had a reason to write his letter -- a reason rooted in the day-to-day life issues his recipients were facing. Although our life context may not be the same as James' hearers, there are life principles to be extracted for our lives as well. Let's discover the historical context and purpose for James’ writing and discuss its application for our lives today.
 
-You've started to read the book of Colossians and you've never read it before or you have read it but now you want to get some background on what was the purpose for this letter? What was the city like historically and culturally at the time of this writing? What were the big issues facing the believers that the apostle Paul is seeking to help them with? What false teachings does this letter specifically address?
+**Historical Context/Occasion:**
 
-**Reading:**
-
-Read the "Book Overview - Colossians" from the Verse-by-Verse Bible Commentary here, https://www.studylight.org/commentary/james.html. 
+Read, James - [Verse-by-Verse Bible Commentary - StudyLight.org](https://www.studylight.org/commentary/james.html), sections: 1. Recipients, Author and Time of Writing and, 2. Subject and purpose of writing. (There's lots of ads on this site, just scroll past them.)
+    1. The writer of the letter:
+       1. What New Testament person named James wrote this letter?
+    2. The recipients of the letter:
+       1. Who are they and where are they located?
+    3. The purpose of the letter:
+       1. What's the purpose for this letter? 
 
 **Challenges:**
 1. Prayerfully, list at least four discoveries from this overview of Colossians that you specifically want to lock down in your understanding and faith while studying this Holy Spirit inspired letter from the apostle Paul. 
