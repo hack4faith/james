@@ -33,7 +33,7 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
 
 **Bringing it home:**
 
-1. What are your key takeaways from this study/discussion? List up to 3 and be prepared to share these in your group or with someone.
+1. What are your key takeaways from this study/discussion? List up to 3 and plan to share these with someone or in your group.
    - #1
    - #2
    - #3
