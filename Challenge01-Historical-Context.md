@@ -38,7 +38,7 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
    2. #2
    3. #3
 
-2. Being genuine -- what two actions can you take this week as a doulos of the Lord Jesus Christ?  
+2. Being genuine -- what two actions can you take this week as a *doulos* of the Lord Jesus Christ?  
    1. #1
    2. #2
 
