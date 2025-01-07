@@ -34,15 +34,15 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
 **Bringing it home:**
 
 1. What are your key takeaways from this study/discussion? List up to 3 and be prepared to share at least one.
-   1.
-   1.
    1. 
+   1. 
+   1.  
     
-1. Being genuine -- what two actions can you take this week as a doulos of the Lord Jesus Christ?  
-   1. 
-   2. 
+2. Being genuine -- what two actions can you take this week as a doulos of the Lord Jesus Christ?  
+   1.  
+   2.  
 
-2. Write a short prayer as a *doulos* to your Lord Jesus Christ.
+3. Write a short prayer as a *doulos* to your Lord Jesus Christ.
 
 
 
