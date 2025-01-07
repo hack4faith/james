@@ -22,13 +22,13 @@ Read, James - [Verse-by-Verse Bible Commentary - StudyLight.org](https://www.stu
 **Word Studies:**
 
 Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible Gateway](https://www.biblegateway.com/passage/?search=James%201%3A1&version=ASV).
-    1. Slave/Servant Gk. [Strong's Greek: 1401. δοῦλος (doulos) -- a slave (biblehub.com)](https://biblehub.com/greek/1401.htm).
-       1. Scroll down to/read *HELPS Word-studies and Thayer's Greek Lexicon* #1.b.
-          1. What are the rights of a slave?
-          1. What is the purpose of a slave?
-          1. How can being a *doulos* of God and the Lord Jesus Christ bring the highest honor to being a slave/bond-servant?
-       1. Re-write verse 1 in your own words expanding the word "slave/servant" into its broader meaning to you.
-       1. Additional study reference but not a "required" reading, servant vs. bond-servant - [Is there a difference between a “servant” and a “bond-servant”? – Evidence for Christianity](https://evidenceforchristianity.org/is-there-a-difference-between-a-servant-and-a-bond-servant/).
+1. Slave/Servant Gk. [Strong's Greek: 1401. δοῦλος (doulos) -- a slave (biblehub.com)](https://biblehub.com/greek/1401.htm).
+    1. Scroll down to/read *HELPS Word-studies and Thayer's Greek Lexicon* #1.b.
+        1. What are the rights of a slave?
+        1. What is the purpose of a slave?
+        1. How can being a *doulos* of God and the Lord Jesus Christ bring the highest honor to being a slave/bond-servant?
+    1. Re-write verse 1 in your own words expanding the word "slave/servant" into its broader meaning to you.
+    1. Additional study reference but not a "required" reading, servant vs. bond-servant - [Is there a difference between a “servant” and a “bond-servant”? – Evidence for Christianity](https://evidenceforchristianity.org/is-there-a-difference-between-a-servant-and-a-bond-servant/).
  
 
 **Bringing it home:**
@@ -43,6 +43,7 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
    2. #2
 
 3. Write a short prayer as a *doulos* to your Lord Jesus Christ.
+   1. 
 
 
 
