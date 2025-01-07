@@ -44,8 +44,8 @@ Read James 1:1, [James 1:1 ASV - James, a servant of God and of the Lord - Bible
 
 **Prayer:**
 
-1. Write a short prayer as a *doulos* to your Lord Jesus Christ.
-   1. Your Prayer...
+Write a short prayer as a *doulos* to your Lord Jesus Christ.
+1. Your Prayer...
  
 
 
