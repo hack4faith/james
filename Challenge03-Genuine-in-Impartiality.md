@@ -1,4 +1,4 @@
-## **Discussion/Study 3 - Genuine in impartiality, James 2:1-13.**
+## **Discussion/Study 3 - Genuine in Impartiality, James 2:1-13.**
 
 
 **Key Phrase:** *"My brothers and sisters, do not show favoritism as you hold on to the faith in our glorious Lord Jesus Christ."* James 2:1
@@ -16,8 +16,8 @@ We live in a day of tremendous polarization, whether political, racial, or socio
    2. What do you see as the remedy for showing favoritism?
 
 
-**Digging in:**
-1. The following scriptures are not exhaustive examples but help establish our foundation for a scriptural perspective on showing genuine impartiality. You’ll look these up in your Bible (or online) so you can see the context.
+**Digging in - Building a Scriptural Perspective on Showing Genuine Impartiality:**
+1. The following scriptures are not exhaustive examples but help establish our foundation. You’ll look these up in your Bible (or online) so you can see the context. 
 2. The Old Testament:
    1. God’s promise to Abraham for all nations – Genesis 22:15-18
    2. The Hebrew law – Leviticus 19:15
