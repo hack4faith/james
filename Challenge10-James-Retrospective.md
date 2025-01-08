@@ -3,10 +3,10 @@
 
 **Scenario:**
 
-Using the Agile methodology in software development, at the end of each "sprint" where within a fixed time duration a body of work has been completed, the team has a "retrospective." This is a dedicated time where the team discusses what worked, what didn't, what they learned, and this shapes the team's focus and actions for their ever-improving performance in the next sprint. Having now completed this discussion of James, it's time for a "retrospective" to help set up each of your group members for their next "sprint" in their faith walk. What have you learned that you want to focus on and share with someone else or your group to further establish your ever-improving and inspire their walk of faith?
+Using the Agile methodology in software development, at the end of each "sprint" where within a fixed time duration a body of work has been completed, the team has a "retrospective." This is a dedicated time where the team discusses what worked, what didn't, what they learned, and this shapes the team's focus and actions for their ever-improving performance in the next sprint. Having now completed this discussion of James, it's time for a "retrospective" to help set up each of your group members (and/or yourself) for their (your) next "sprint" in their (your) faith walk. What have you learned that you want to focus on and share with someone else or your group to further establish your ever-improving and inspire their walk of faith?
 
 
-**Thinking back of the week’s discussions in the Letter of James:**
+**Thinking back on the discussions/studies in the Letter of James:**
 1. Think back on this series of discussions we’ve shared. Possibly this study provided a lens through which now you "see" the scripture, Jesus, others, and God's heart for mankind more clearly. Maybe something shared has inspired your faith walk in a new way. Whatever the case, take some time to reflect upon these discussions and review your notes. 
     1. Discussion 1 - Historical Context 1:1
     1. Discussion 2 - Genuine in Endurance 1:2-26
