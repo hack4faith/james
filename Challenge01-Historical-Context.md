@@ -1,4 +1,4 @@
-## **Discussion/Study 1 - Historical Context**
+## **Discussion/Study 1 - Historical Context, James 1:1**
 
 **Introduction:**
 
