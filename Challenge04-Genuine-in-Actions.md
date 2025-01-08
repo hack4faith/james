@@ -1,7 +1,7 @@
 ## **Discussion/Study 4 - Genuine in Actions, James 2:14-26.**
 
 
-**Key Phrase:** *""…you see that faith was active together with his works, and by works, faith was made complete…"* James 2:22
+**Key Phrase:** *"…you see that faith was active together with his works, and by works, faith was made complete…"* James 2:22
 
 **Scenario:**
 
