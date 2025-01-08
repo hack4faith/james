@@ -76,6 +76,8 @@ Write a short prayer to your Lord Jesus Christ regarding being genuine in faith 
 - Identify 2 key discoveries you would like to share.
 
 
+**Acknowledgement:** Some of the content in this study was inspired by William Barclay (1976). *The Daily Study Bible Series, Revised Edition, The Letter of James and Peter*. The Westminster Press.
+
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
 
