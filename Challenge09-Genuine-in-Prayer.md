@@ -22,9 +22,9 @@ Prayer, an on-going, bi-directional, conversation with the ever-present God. Wha
    6. Why might we not pray?
 2. *Optional reading* – the account of Elijah and the rain – 1 Kings 17 & 18: [1 Kings 17-18 NIV - Elijah Announces a Great Drought - Now - Bible Gateway](https://www.biblegateway.com/passage/?search=1%20Kings%2017-18&version=NIV).
 3. Looking back at other “tips” James provides us about prayer:
-   1. James 1:5-8, What is/are James’ “tip(s)” for prayer here?
-   2. James 4:2-3, What is/are James’ “tip(s)” for prayer here?
-   3. James 4:7-10, What is/are James’ “tip(s)” for prayer here?
+   1. [James 1:5-8](https://www.biblegateway.com/passage/?search=james%201:5-8&version=NIV), What is/are James’ “tip(s)” for prayer here?
+   2. [James 4:2-3](https://www.biblegateway.com/passage/?search=james%201:5-8&version=NIV), What is/are James’ “tip(s)” for prayer here?
+   3. [James 4:7-10](https://www.biblegateway.com/passage/?search=james%204:7-10&version=NIV), What is/are James’ “tip(s)” for prayer here?
 4. Highlighting a couple of Jesus’ teachings on prayer:
    1. The Lord’s Prayer: [Matthew 6:5-15 NIV - Prayer - “And when you pray, do not - Bible Gateway](https://www.biblegateway.com/passage/?search=Matthew%206%3A5-15&version=NIV).
       1. What are your bullet list takeaways from this passage? 
