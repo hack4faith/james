@@ -1,6 +1,6 @@
 # #Hack4Faith Presents:
 
-## A challenge-based study of the Letter of James 
+## A discussion-based study of the Letter of James 
 
 **Welcome to The Letter of James!** NEED TO PRAYERFULLY WRITE NEW CONTENT HERE!! 
 
