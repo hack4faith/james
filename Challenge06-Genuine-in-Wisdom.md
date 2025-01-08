@@ -1,5 +1,3 @@
-## **Challenge 6 - Genuine in wisdom**
-
 ## **Discussion/Study 6 - Genuine in Wisdom, James 3:13-18.**
 
 
