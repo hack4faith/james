@@ -13,8 +13,8 @@ William Barclay writes, “Many a man speaks with perfect courtesy to strangers 
 
 
 **Digging in:**
-1. Framing some questions for discussion:
-   1. From this passage, write at least three questions you would like the group to discuss. These are questions that you may or may not have an answer to, but you’d like to discuss with your group or another person. 
+1. Framing some questions for thought/discussion:
+   1. From this passage, write at least three questions. These are questions that you may or may not have an answer to, but you’d like to discuss with your group or another person. 
       1. Question 1: 
          1. What verse(s) does this question come from?
       1. Question 2: 
