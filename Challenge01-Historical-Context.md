@@ -54,8 +54,6 @@ Write a short prayer as a *doulos* to your Lord Jesus Christ.
 - List any questions you would like to discuss.
 - Identify 2 key discoveries you would like to share.
 
-**Online Resources:**
-- Verse-by-Verse Bible Commentary
 
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
