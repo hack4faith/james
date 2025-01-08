@@ -1,7 +1,7 @@
 # #Hack4Faith Presents:
 
 ## A discussion-based study of the Letter of James
-##### *(For individual study too)* 
+##### *(For individual study too - once you work through it, form a team/group.)* 
 
 **Welcome to The Letter of James!** NEED TO PRAYERFULLY WRITE NEW CONTENT HERE!! 
 
