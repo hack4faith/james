@@ -1,4 +1,4 @@
-## **Discussion/Study 6 - Genuine in Relationships, James 4:1-12.**
+## **Discussion/Study 7 - Genuine in Relationships, James 4:1-12.**
 
 
 **Key Phrase:** *"Humble yourselves before the Lord, and he will lift you up."* James 4:10
