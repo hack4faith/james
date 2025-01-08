@@ -7,16 +7,16 @@ Using the Agile methodology in software development, at the end of each "sprint"
 
 
 **Thinking back on the discussions/studies in the Letter of James:**
-1. Think back on this series of discussions we’ve shared. Possibly this study provided a lens through which now you "see" the scripture, Jesus, others, and God's heart for mankind more clearly. Maybe something shared has inspired your faith walk in a new way. Whatever the case, take some time to reflect upon these discussions and review your notes. 
-    1. Discussion 1 - Historical Context 1:1
-    1. Discussion 2 - Genuine in Endurance 1:2-26
-    1. Discussion 3 - Genuine in Impartiality 2:1-13
-    1. Discussion 4 - Genuine in Actions 2:14-26
-    1. Discussion 5 - Genuine in Words 3:1-12
-    1. Discussion 6 - Genuine in Wisdom 3:13-18
-    1. Discussion 7 - Genuine in Relationships 4:1-12
-    1. Discussion 8 - Genuine in Confidence 4:13-5:12
-    1. Discussion 9 - Genuine in Prayer 5:13-20
+1. Think back on this series of discussions/studies. Possibly this study provided a lens through which now you "see" the scripture, Jesus, others, and God's heart for mankind more clearly. Maybe something shared has inspired your faith walk in a new way. Whatever the case, take some time to reflect upon these and review your notes. 
+    1. Discussion/Study 1 - Historical Context 1:1
+    1. Discussion/Study 2 - Genuine in Endurance 1:2-26
+    1. Discussion/Study 3 - Genuine in Impartiality 2:1-13
+    1. Discussion/Study 4 - Genuine in Actions 2:14-26
+    1. Discussion/Study 5 - Genuine in Words 3:1-12
+    1. Discussion/Study 6 - Genuine in Wisdom 3:13-18
+    1. Discussion/Study 7 - Genuine in Relationships 4:1-12
+    1. Discussion/Study 8 - Genuine in Confidence 4:13-5:12
+    1. Discussion/Study 9 - Genuine in Prayer 5:13-20
 
 1. What if you had 3-5 minutes to present what you've learned from the Letter of James to a trusted friend? What would be the title/headline of your presentation and what would be your four bullet-points? 
    1. Well, here's your opportunity to prepare. Create a single document with a title/headline and 4 bullet points. Plan to share your 3–5-minute presentation with another person or your discussion group.
