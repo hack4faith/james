@@ -19,7 +19,7 @@ The future – that which is always before us. It holds the probability for time
    3. Verse 17, What is to guide our choices?
    4. How do these verses impact “confidence” in our approach to the future? 
 2. Verses 5:1-6:
-   1. Write two questions from these verses you’d like to discuss with another person or your.
+   1. Write two questions from these verses you’d like to discuss with another person or your group.
       1. Questions 1 – 
       2. Questions 2 – 
    2. What are we NOT to put our confidence in?
