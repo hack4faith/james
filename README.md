@@ -19,9 +19,9 @@ Enjoy!
 
 **Getting started is simple -- no previous experience necessary**
 
-Whether you are new to your walk of faith or you have known the life and love of God for years, simply open the [Quick-Start](https://github.com/hack4faith/james/tree/main/Quick-Start) folder, read the [forming-your-team.md](https://github.com/hack4faith/james/blob/main/Quick-Start/forming-your-team.md) guidance, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case, browse the list of challenges and get hacking to strengthen your faith and then exercise it with action!
+Whether you are new to your walk of faith or you have known the life and love of God for years, simply open the [Quick-Start](https://github.com/hack4faith/james/tree/main/Quick-Start) folder, read the [forming-your-team.md](https://github.com/hack4faith/james/blob/main/Quick-Start/forming-your-team.md) guidance, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case, browse the list of discussions and get hacking to strengthen your faith and then exercise it with action!
 
-
+ADD LIST HERE OF THE DISCUSSIONS WITH LINKS TO EACH OF THE GITHUB DISCUSSIONS....
 
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
