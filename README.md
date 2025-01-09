@@ -3,14 +3,19 @@
 ## A discussion-based study of the Letter of James
 ##### *(For individual study too - once you work through it, form a team/group.)* 
 
-**Welcome to The Letter of James!** NEED TO PRAYERFULLY WRITE NEW CONTENT HERE!! 
+**Welcome to The Letter of James!**  
 
--- SOME INITIAL THOUGHTS ON AN INTRODUCTION TO -- WHY JAMES...?
-WHAT DOES A GENUINE FAITH-LIFE LOOK LIKE IN PRACTICE? WHEN WE THINK OF BECOMING PROFICIENT AT ANYTHING< WE THINK OF PRACTICE -- PRACTICING THE BASICS, WORKING TO ESTABLISH MUSCLE MEMORY, AND INCREMENTALLY INCREASING OUR SKILL LEVEL THROUGH DOING THINGS THE CORRECT WAY OVER AND OVER AGAIN. THERE ARE MODELS OF PROFIECIENCY, THESE MAY BE EMBODIED IN A PERSON THAT WE WANT TO PATTERN OUR SKILLS AFTER, IT MAY BE IN A CODE OF CODUCT THAT WE WANT TO ADHERE TO, BUT IN ANY CASE IT WILL REQUIRE INTENIONALITY. THE LETTER OF JAMES PROVIDES A MODEL FOR A FAITH-LIFE THAT IS WHOLEISTICALLY GENUINE IN NATURE. ONE THAT REFLECTS THE MODEL OF JESUS' LIFE EXPRESSED IN A VARIETY OF WAYS WHETHER INTERNAL TO OURSELVES OR EXTERNALLY TO OTHERS AND OUR GOD. ..... 
 
-In this small four chapter letter you will engage in a series of challenge-based hacks that will stretch your brain, deepen your compassion, enrich your purpose, guide your relationships with others, strengthen your faith and grow your understanding of God's great heart of love for people.
+The Letter from James is all about “being genuine." His earnest call is for believers to walk in genuineness across all facets of their life: attitudes, actions, words, relationships, wisdom, and prayer.
 
-The desired outcome: *"...that you stand mature and confident in all the will of God."* Colossians 4:12
+From a practical sense, how do we develop a “genuine” faith-life within our day-to-day routines? When we think of becoming proficient at anything, we think of practice – practicing the basics, working to establish muscle memory, and incrementally increasing our skill level through doing things correctly over and over again.
+
+We also have observable examples and models of proficiency. These may be embodied in a person that we want to pattern our skills after or in a code of conduct that we want to adhere to, but in any case, to be proficient will require intentionality. The Letter of James provides a practical model for a faith-life that is wholistically genuine in nature. A faith-life that reflects the example of Jesus’ life - genuinely expressed in so many ways. A faith-life that is always genuine towards ourselves, others, and our Heavenly Father.
+
+Why study the Letter of James? To heed his call to genuineness. And so that, *"... you may be mature and complete lacking nothing."* James 1:4
+
+Enjoy!
+
 
 **Getting started is simple -- no previous experience necessary**
 
@@ -25,8 +30,8 @@ Whether you are new to your walk of faith or you have known the life and love of
 
 Hence, as a person of faith desiring to see others deepen their faith and love for our Lord Jesus Christ, this challenged-based **#Hack4Faith** and **#YourFaith2Action** Bible study format was developed. The **#Hack4Faith** and **#YourFaith2Action** format does not teach, it sets up a series of challenges to hack and provides the Holy Spirit the opportunity to teach and inspire the faith of each person. 
 
-The challenge-based **#Hack4Faith** Bible study format:
-1. Shapes study challenges around faith-enabling scenarios
+The challenge/discussion-based **#Hack4Faith** Bible study format:
+1. Shapes study challenges/discussions around faith-enabling scenarios
 1. Provides links to free online Bible study resources for discovery
 1. Challenges learners to make 4 statements from each study to continually build-up their faith
 1. Encourages learners to prayerfully determine at least 2 **#YourFaith2Action** deeds as an outcome of their study
@@ -38,7 +43,7 @@ James 2:18-20 -- *"But someone will say, 'You have faith [think **#Hack4Faith**]
 **#Hack4Faith** and **#YourFaith2Action** couple these truths from James as an emphasis and outcome from the study of God's word. Study of His word produces faith, because, *"…faith comes by hearing and hearing by the word of Christ,"* Romans 10:17. Then, as faith is built it must be converted into actions/good works. As Ephesians 2:10 states, *"We are His workmanship, created in Christ Jesus for good works, which God prepared beforehand so that we would walk in them."*
 
 **Learning Objectives:**
-- Through participation in a **#Hack4Faith** challenge a faith hacker will:
+- Through participation in a **#Hack4Faith** study a faith hacker will:
     - Discover Bible study resources available for free on the Internet
     - Experience how to use online Bible study resources
     - Prayerfully contemplate their insights from the challenges and journal their thoughts
@@ -47,7 +52,7 @@ James 2:18-20 -- *"But someone will say, 'You have faith [think **#Hack4Faith**]
 
 **Content Is Free To All:** Subject to the [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/)
 
-The challenge-based hack format is certainly free for all to use, but **#Hack4Faith** and **#YourFaith2Action** studies/content created according to this format are intended to be open source, *not to be* monetized in any way, and should only make use of free web-based Bible study resources to be available to all. God's Word is free -- and the Holy Spirit teaches us without cost because Jesus paid the price for His tutelage. Jesus said in Matthew 10:8, *"…Freely you have received; freely give."* **#Hack4Faith** and **#YourFaith2Action** are heart-aligned with these words.
+The challenge/discussion-based hack format is certainly free for all to use, but **#Hack4Faith** and **#YourFaith2Action** studies/content created according to this format are intended to be open source, *not to be* monetized in any way, and should only make use of free web-based Bible study resources to be available to all. God's Word is free -- and the Holy Spirit teaches us without cost because Jesus paid the price for His tutelage. Jesus said in Matthew 10:8, *"…Freely you have received; freely give."* **#Hack4Faith** and **#YourFaith2Action** are heart-aligned with these words.
 
 **Contributing Faith Hackers:**
 
@@ -62,7 +67,7 @@ Freely available web-based Bible study tools used:
 
 Visit [Hack4Faith.org](https://www.hack4faith.org/) for 'Contact Us' information.
 
-Twitter: @Hack4Faith, #Hack4Faith, #YourFaith2Action
+X (formerly Twitter): @Hack4Faith, #Hack4Faith, #YourFaith2Action
 
 Copyright Hack4Faith and Donovan Follette. This material is subject to [Creative Commons License (CC BY-NC-SA 4.0)](https://creativecommons.org/licenses/by-nc-sa/4.0/).
 
