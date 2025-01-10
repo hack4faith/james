@@ -35,9 +35,9 @@ Whether you are new to your walk of faith or you have known the life and love of
 10. [Discussion 10 - Restrospective](https://github.com/hack4faith/james/blob/main/Challenge10-James-Retrospective.md)
 
 
-**Additional Resources from Hack4Faith.org**
-- [The Colossians Challenge](https://github.com/hack4faith/colossians) - A Discussion/Study
-- [Read2See](https://github.com/hack4faith/read-to-see) - A 12 book "short-list" of what to read first in the Bible
+**Additional Resources from [Hack4Faith.org](https://hack4faith.org/)**
+- [The Colossians Challenge](https://hack4faith.org/colossians-challenge) - A Discussion/Study (on [GitHub](https://github.com/hack4faith/colossians))
+- [Read2See](https://hack4faith.org/read2see) - A 12 book "short-list" of what to read first in the Bible (on [GitHub](https://github.com/hack4faith/read-to-see))
 
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
