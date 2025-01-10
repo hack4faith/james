@@ -34,6 +34,11 @@ Whether you are new to your walk of faith or you have known the life and love of
 9. [Discussion 9 - Genuine in prayer 5:13-20](https://github.com/hack4faith/james/blob/main/Challenge09-Genuine-in-Prayer.md)
 10. [Discussion 10 - Restrospective](https://github.com/hack4faith/james/blob/main/Challenge10-James-Retrospective.md)
 
+
+**Additional Resources from Hack4Faith.org**
+- [The Colossians Challenge](https://github.com/hack4faith/colossians) - A Discussion/Study
+- [Read2See](https://github.com/hack4faith/read-to-see) - A 12 book "short-list" of what to read first in the Bible
+
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
 
