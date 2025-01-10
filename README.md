@@ -21,7 +21,18 @@ Enjoy!
 
 Whether you are new to your walk of faith or you have known the life and love of God for years, simply open the [Quick-Start](https://github.com/hack4faith/james/tree/main/Quick-Start) folder, read the [forming-your-team.md](https://github.com/hack4faith/james/blob/main/Quick-Start/forming-your-team.md) guidance, gather a meet-up team (virtual or in-person) or go-it-alone. But in any case, browse the list of discussions and get hacking to strengthen your faith and then exercise it with action!
 
-ADD LIST HERE OF THE DISCUSSIONS WITH LINKS TO EACH OF THE GITHUB DISCUSSIONS....
+
+**James Discussion/Study Topics**
+1. [Discussion 1 - Historical Context 1:1](https://github.com/hack4faith/james/blob/main/Challenge01-Historical-Context.md)
+2. [Discussion 2 - Genuine in endurance 1:2-26](https://github.com/hack4faith/james/blob/main/Challenge02-Genuine-in-Endurance.md)
+3. [Discussion 3 - Genuine in impartiality 2:1-13](https://github.com/hack4faith/james/blob/main/Challenge03-Genuine-in-Impartiality.md)
+4. [Discussion 4 - Genuine in actions 2:14-26](https://github.com/hack4faith/james/blob/main/Challenge04-Genuine-in-Actions.md)
+5. [Discussion 5 - Genuine in words 3:1-12](https://github.com/hack4faith/james/blob/main/Challenge05-Genuine-in-Words.md)
+6. [Discussion 6 - Genuine in wisdom 3:13-18](https://github.com/hack4faith/james/blob/main/Challenge06-Genuine-in-Wisdom.md)
+7. [Discussion 7 - Genuine in relationships 4:1-12](https://github.com/hack4faith/james/blob/main/Challenge07-Genuine-in-Relationships.md)
+8. [Discussion 8 - Genuine in confidence 4:13-5:12](https://github.com/hack4faith/james/blob/main/Challenge08-Genuine-in-Confidence.md)
+9. [Discussion 9 - Genuine in prayer 5:13-20](https://github.com/hack4faith/james/blob/main/Challenge09-Genuine-in-Prayer.md)
+10. [Discussion 10 - Restrospective](https://github.com/hack4faith/james/blob/main/Challenge10-James-Retrospective.md)
 
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
