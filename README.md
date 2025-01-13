@@ -38,7 +38,7 @@ Whether you are new to your walk of faith or you have known the life and love of
 **Additional Resources from [Hack4Faith.org](https://hack4faith.org/)**
 - [The Colossians Challenge](https://hack4faith.org/colossians-challenge) - A Discussion/Study (on [GitHub](https://github.com/hack4faith/colossians))
 - [Read2See](https://hack4faith.org/read2see) - A 12 book "short-list" of what to read first in the Bible (on [GitHub](https://github.com/hack4faith/read-to-see))
-- [The James Challenge]() - A Discussion/Study
+- [The James Challenge](https://hack4faith.org/james-challenge) - A Discussion/Study
 
 # 
 ## Background and Inspiration for #Hack4Faith and #YourFaith2Action
@@ -73,7 +73,7 @@ The challenge/discussion-based hack format is certainly free for all to use, but
 
 **Contributing Faith Hackers:**
 
-Donovan, ...
+Donovan, David, Kevin, Reese, Paul, Stan
 
 Freely available web-based Bible study tools used:
 - StudyLight.Org has a broad array of resources: https://www.studylight.org/
